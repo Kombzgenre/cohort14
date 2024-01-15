@@ -14,6 +14,6 @@
 ## maliq
 ## temitayo
 ## okon
-## adekunle
+## adekunle kuteyi
 ## taiwo 
 
